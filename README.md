@@ -8,7 +8,7 @@ meu nome é Lara Isabella
 
 Voce pode falar comigo por 📧
 
-@laraisabellah@gmail.com
+laraisabellah@gmail.com
 
 
 
